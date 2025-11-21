@@ -1,13 +1,2 @@
-Boynton Anthyony’s last conversations [some of them] were talking about killing people 
-I woke up –– Donald Trump is talking about killing people 
-Then Rod’s first quote was talking about killing people 
-
-Eventually, they’re going to actually start publicly attempting to kill people. 
-
 That is the standard behavior of these groups when they are told no –– that is where “the salesman who doesn’t take no for an answer” [it is not a joke––that is actually how they’re behaving] ultimately leads –– it does not lead anywhere other than that. Because some people won’t say yes, and some people won’t take no for an answer. And so  eventually, you see not necessarily who is stronger, but who is wiser.  And as usual, DeSantis was more practical –– he can’t have all of those technology companies being right next to the Caribbean Islands, so of course, it is not entirely his fault –– whereas Newsom took to more far ranged tactics –– talking with the UN –– in reality, of Abbott, Newsom, and DeSantis, we would be weakened by losing even one of them. Unfortunately, in Abbott’s case, there is a very extreme faction that took advantage of “remote police work.” 
 Now DeSantis has about five islands trying to break in, but Newsom is dealing with about five companies under threat –– the only common thread (or threat) is Donald Trump –– again, they meant well with Boynton Anthony and Austin Anthony and Andrew Michael and Andrew Michael –– but at some point, they will be confronted by reality. At some point, the lies that they are moving are going to translate in lost lives. When you use lies, you lose lives. When you are now weaponising the FBI –– most of them are innocent –– to cover a crime that has the penalty of a ban on holding federal office, on the basis of holding that federal office, it is outright treason. 
-
-When you bribe medical research staff [I’m not talking about –––– ––] there is one word, murder.
-When you cover crimes that have a ban on federal office, on the basis of holding federal office, that is an insurrection. 
-When you use lies, you lose lives. 
-When you then weaponise the highest investigatory agency of the United States of America to cover those crimes with lies, it is treason. 
